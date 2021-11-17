@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @faradiladw
+- 👀 I’m interested in drawings, books and nature
+- 🌱 I’m currently learning about agriculture
